@@ -1,0 +1,5 @@
+- Ali Ahsan
+- Getting to know each other
+- aliahsan@lewisu.edu
+- All content is Original
+- Basic information about me and an insight on my life will be found on my webpage.
